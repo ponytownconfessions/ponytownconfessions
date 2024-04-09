@@ -1,5 +1,8 @@
-### welcome to PT confessions!
-
+### welcome to pt confessions!
+- this was made purely for fun
+- all confessions will be posted on rentry.co/ptconfessions
+- please restrain from sending anything problematic
+- feel free to send anything else!
 <!--
 **ponytownconfessions/ponytownconfessions** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
