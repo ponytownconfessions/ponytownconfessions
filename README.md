@@ -4,7 +4,7 @@
 - please restrain from sending anything problematic
 - feel free to send anything else!
 
-to the anon who submitted the long rant, i hope you're doing well. i decided not to post it incase you're uncomfortable of me doing so. all i can say is that you're gonna do just fine. 
+to the anon who submitted the long rant, i hope you're doing well. i decided not to post it incase you're uncomfortable of me doing so. all i can say is that you're gonna do just fine.
 
 to clear out any confusion, what i mean by problematic is racism, proship, pedophilia, discrimination, jokes about rape, etc. everything else is okay to post! 
 
@@ -16,4 +16,4 @@ thank you to everyone who has been so supportive of this account. a lot of you h
 
 on a further note, please be nice to eachother on the cbox! impersonation of anyone can lead to an IP ban. 
 
-i will try to update the rentry as fast as i can. i'm the only one running this account, so bear with me. i love you all. :)
+i will try to update the rentry as fast as i can. i'm the only one running this account, so bear with me. i love you all!
