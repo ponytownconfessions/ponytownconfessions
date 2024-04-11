@@ -14,6 +14,6 @@
 
 - thank you to everyone who has been so supportive of this account. a lot of you has been very sweet and i can't thank you enough. i've been having a ton of fun, and i hope that all of you are too.
 
-- on a further note, please be nice to eachother on the cbox! impersonation of anyone can lead to an IP ban. 
+- on a further note, please be nice to eachother on the cbox! impersonation of anyone can lead to an IP ban. please be wary of any suspicious links!
 
 - i will try to update the rentry as fast as i can. i'm the only one running this account, so bear with me. i love you all!
